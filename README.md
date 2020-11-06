@@ -6,8 +6,10 @@ You can have any power plan of Ddoser tool you want, Just see Youtube video and 
 Contact with me to get the Password of Zip file on :
 
  Telegram : https://t.me/erfan4lx
+ Telegram : https://t.me/hack4lx
  
  Email : erfan4lx@gmail.com
+ Email : manifesto.blackhathackingteam@gmail.com
  
  
  ## Show on Youtube : https://youtu.be/q_GxqWtqXbs
